@@ -14,4 +14,3 @@
 ![발표자료_팀_리트라이_페이지](https://github.com/DohyunBu/KAMP_2/raw/main/발표자료/발표자료_팀_리트라이_페이지_12.jpg)
 ![발표자료_팀_리트라이_페이지](https://github.com/DohyunBu/KAMP_2/raw/main/발표자료/발표자료_팀_리트라이_페이지_13.jpg)
 ![발표자료_팀_리트라이_페이지](https://github.com/DohyunBu/KAMP_2/raw/main/발표자료/발표자료_팀_리트라이_페이지_14.jpg)
-![발표자료_팀_리트라이_페이지](https://github.com/DohyunBu/KAMP_2/raw/main/발표자료/발표자료_팀_리트라이_페이지_15.jpg)
